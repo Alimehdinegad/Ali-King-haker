@@ -1,2 +1,3 @@
-hakkk sheyda
+چن هزار تا؟
+
 # Ali-King-haker
